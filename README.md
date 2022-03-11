@@ -4,10 +4,5 @@ Olá! bem vindo ao nosso livro de receitas :kissing_closed_eyes:
 
 - Strogonoff de Frango
 - Pavê ou pacumê
-
-
-
-
-
-
+- Pavê!!!!
 
